@@ -1,0 +1,1 @@
+# Joe-Rocket-Mega-Trend-ScannerV2
